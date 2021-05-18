@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bongobirch
 - 👀 I’m interested in gaming and music
-- 🌱 I’m currently learning aerospace engineering at Auburn University
+- 🌱 I’m currently studying aerospace engineering at Auburn University
 - 💞️ I’m looking to collaborate on video games
 - 📫 How to reach me: bongobirchproductions@gmail.com
 
