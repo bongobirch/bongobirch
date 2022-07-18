@@ -1,2 +1,1 @@
-Hey
-If you have any quetsions email me at bongobirchproductions@gmail.com
+To contact me, email bongobirchproductions@gmail.com
